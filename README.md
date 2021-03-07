@@ -1,1 +1,0 @@
-https://xsideweb.github.io/rsschool-cv/cv
